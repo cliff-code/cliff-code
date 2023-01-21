@@ -2,4 +2,4 @@
 - 👀 I’m interested in tech, aviation, tv series, anime, rnb music, the world, cryptocurrencies, fashion, makeup, and personal development.
 - 🌱 I’m currently learning how to code!
 - 💞️ I’m looking to collaborate with other learners studying how to code.
-- 📫 You can reach me at instagram, @clairedanila_
+- 📫 You can reach me at instagram, @jdclrdnl
